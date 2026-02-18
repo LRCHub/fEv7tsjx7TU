@@ -1,4 +1,4 @@
-# kotoha – だきしめるまで。 (Cover)
+# Kotoha – だきしめるまで。 (Cover) - Dakisimerumade (Cover)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
